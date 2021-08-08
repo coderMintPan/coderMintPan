@@ -1,1 +1,1 @@
-我是coderMintPan，2021年8月8日注册此账户，将记录后续的学习状态。
+I'm coderMintPan.
